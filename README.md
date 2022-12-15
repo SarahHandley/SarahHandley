@@ -5,7 +5,7 @@
 - 📫 How to reach me: handleysarah99@gmail.com or (936)-465-4132
 - 😄 Pronouns: She/Her/Hers
 - ⚡ Fun fact: I know some Italian and used to be a competitive dancer.
-- 💬 I'm interested in pretty much everything, so please feel free to get in touch with me!
+- 💬 I'm interested in pretty much everything (especially CSS), so please feel free to get in touch with me!
 
 ## What I'm working with
 
